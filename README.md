@@ -1,1 +1,2 @@
 # FirstRep
+THESE ARE MY FIRST STEPS
